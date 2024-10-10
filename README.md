@@ -1,4 +1,4 @@
-# 🌟 **Nitika's Portfolio**
+# **Hi 👋 , I am Nitika**
 
 📍 Jalandhar, Punjab, 144021  
 📧 **Email:** [nitikakalra2003@gmail.com](mailto:nitikakalra2003@gmail.com)  
